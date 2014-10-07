@@ -95,6 +95,7 @@ Dit geeft een heel andere interpretatie. Scholten is een belangrijke conservator
 
 De kunstgeschiedenis is doordrongen van sociale verklaringen. Om  boodschappen te delen. Machtig waren de Nassaus wel. Veel interessanter is dat ze zich tonen op hun nederigst. Maar als het gaat om Christus dan ga je op de knieeen. Een veel interessanter portet. 
 
+
 ## Grafmonumenten na de Nassau's
 
 Nergens in de wereld zijn zulke graven. Wat kwam daarna? Hendrik de III heeft geen monument gekregen. Rene van Chalon is in 1544 gestorven. Hij heeft een graf gekregen in Bar le duc. Het is een van de meest merkwaardigste graven, zijn hart is daar bewaard. Zijn lichaam lag in Breda, op last van zijn vrouw. Een van de meest gruwelijke Transi's zijn gemaakt. Het hart houd hij in zijn hand. Een mooi voorbeeld van de grafkunst. De sterfelijkheid word mooi weergegeven, heel nederig. Hij gaat niet op in zijn aardse roem. 
